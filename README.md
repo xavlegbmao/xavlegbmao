@@ -11,7 +11,7 @@
 <div align="center">
 
 
-#1 xavleg fan ever & riako of [sobieslaw kościuszko](https://callofduty.fandom.com/wiki/Sobieslaw_%22Gromsko%22_Kosciuszko) 𖹭
+#1 NOWHERE2RUN & xavleg fan ever 👀
 
 [info](https://rentry.co/xavleg)　　[rblx](https://www.roblox.com/users/5809349077/profile) 　[fm](https://last.fm/user/stamnarsh)
 
