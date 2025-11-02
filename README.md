@@ -3,7 +3,7 @@
  
 ![](https://komarev.com/ghpvc/?username=femIock&style=plastic&color=000000&label=_　🦴　　&base=1520710)
 
-<img src="https://i.postimg.cc/yY2X4bdw/XAVLEGBMAOFFFASSSSITIMIWOAMNDUTROABCWAPWAEIIPPOHFFFX.jpg" alt="Preview" width="400">
+<img src="https://i.postimg.cc/V63mgwvh/IMG-7458.png" alt="Preview" width="400">
 
 </p>  
 
